@@ -6,6 +6,7 @@
   
   Desejo estágios e quaisquer outras oportunidades na área!
   
-- 📫 E-mail: kaiqsouza2004@hotmail.com
-- 📫 Celular: (67) 9224-5863
+- 📫 **E-mail:** kaiqsouza2004@hotmail.com
+- 📫 **Celular:** (67) 9224-5863
+- 📫 **Linkedin:** https://www.linkedin.com/in/kaique-onencio-b97777234
 
