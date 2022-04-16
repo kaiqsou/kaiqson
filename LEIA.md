@@ -8,5 +8,5 @@
   
 - 📫 **E-mail:** kaiqsouza2004@hotmail.com
 - 📫 **Celular:** (67) 9224-5863
-- 📫 **Linkedin:** https://www.linkedin.com/in/kaique-onencio-b97777234
+- 📫 **Linkedin:** https://www.linkedin.com/in/kaiq
 
